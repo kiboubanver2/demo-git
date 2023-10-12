@@ -2,7 +2,7 @@
 
 _<p align="center"> "For indeed, with hardship [will be] ease…Indeed, with hardship [will be] ease…So when you have finished [your duties], then stand up [for worship]. And to your Lord direct [your] longing.” <sup>Al Inshirah, 5-8</sup>_
 
-![MyProfile](./assets/Photo.jpeg)
+![MyProfile](./Assets/Photo.jpeg)
 
 ## **Table of Contents** :books:
 - [Who's Bayu?](#whos-bayu)
