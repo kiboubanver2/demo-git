@@ -34,6 +34,7 @@ Bayu's dream? To live a quiet, peaceful life in the middle of nowhere in New Zea
 ---
 
 ## How Can You Get Closer To Him :moneybag:
+Wondering how to get close to Bayu? Well, you might think a monthly fee of just one dollar would do the trick, but, folks, I've got to admit, he's priceless! Kidding, of course! All you need to do is follow me on the social media platforms listed below, and you'll practically be in Bayu's inner circle. Plus, it's a much more budget-friendly way to enjoy his entertaining updates and witty posts. So, grab that smartphone and start following, because the adventures in Bayu's world are just a click away! 
 | Site | User Name | Link |
 | :------ | :------ | :------ |
 | LinkedIn | Bayu M | https://www.linkedin.com/in/bayu-m-12621b180/|
